@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @AvIVV2
 - 👀 I’m interested in Sonic Modding
-- 🌱 I’m currently learning dinaxui
-- 💞️ I’m looking to collaborate on dinaxu
+- 🌱 I’m currently learning Modding
+- 💞️ I’m looking to collaborate on no one
 - 📫 How to reach me dinaxu
-- 😄 Pronouns: porno
+- 😄 Pronouns: xaxaxa mega pachka chipsov 70gramm
 - ⚡ Fun fact: smeshnoi fact
 
 <!---
